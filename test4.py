@@ -1,0 +1,1 @@
+https://github.com/AadrikaK/everyday_assignments/tree/day6
